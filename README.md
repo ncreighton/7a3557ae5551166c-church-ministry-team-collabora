@@ -1,0 +1,2 @@
+# 7a3557ae5551166c-church-ministry-team-collabora
+Every church ministry professionals needs this — most just don't know it yet.  Under 1MB. Zero performance impact on browser speed. Works directly in Chrome, Edge, and Brave — no switching apps required.  ## What's Included  - Church Ministry Team Collaboration Workspace — fully configured and ready to use - One-click activation directly from the b
